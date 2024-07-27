@@ -1,1 +1,1 @@
-socia page
+social page
